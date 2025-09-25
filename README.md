@@ -6,7 +6,7 @@
 
 <details align="center">
 <summary> TEXTTTT </summary>
-    this is an ugly wip...hm, but basic dni ( + darkshippers ) and um....yah, i do later Ok?
+    this is an ugly wip...hm, but basic dni ( + darkshippers ) and um....yah, i do later Ok? i very socially inept, i cant talk to people pls bmf...😢
         <br>
     𓎠𓎠𓎠𓎠𓎠𓎠
     </details>
