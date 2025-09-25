@@ -4,6 +4,6 @@
 <p align="center">
 
 <p align="center">
-  <img src="https://i.pinimg.com/736x/10/85/b4/1085b40a61b1e47890b6fecd474690fb.jpg"/>
+  <img src="https://i.pinimg.com/736x/5b/48/21/5b482135b1cfcd950d0e3589b8dba6e2.jpg"/>
 </p>
  <br>
