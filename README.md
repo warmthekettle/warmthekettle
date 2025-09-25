@@ -1,6 +1,6 @@
 <p align="center">
 </a>
-<img src="https://komarev.com/ghpvc/?username=warmthekettle&color=f7a3da&base=1000&style=flat&label=_⠀_CAUGHT_YOU_DROWNING_IN_DEPT?_⠀_" />⠀
+<img src="https://komarev.com/ghpvc/?username=warmthekettle&color=ce9ed9&base=1000&style=flat&label=_⠀_CAUGHT_YOU_DROWNING_IN_DEPT?_⠀_" />⠀
 <p align="center">
 <br>
 
