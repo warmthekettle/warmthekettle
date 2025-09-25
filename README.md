@@ -13,6 +13,6 @@
  <br>
 
 <p align="center">
-  <img src="https://64.media.tumblr.com/a6f99e7c5143a27a9158de1a9d8b9041/6f438e72da2a8818-f2/s500x750/729abb0c3cc68ecb0005ef217bce1d76b28a54d4.pnj" width="200" height="200%"/>
+  <img src="https://i.pinimg.com/736x/76/a4/b6/76a4b6ec6cfdb5c9c715bace60eb7a30.jpg" width="200" height="200%"/>
 </p>
  <br>
